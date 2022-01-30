@@ -1,5 +1,7 @@
  👋 Hello!, I’m @meistercodes
  
+ Working down the path to becoming employable!
+ 
 
 
 <!---
