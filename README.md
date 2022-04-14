@@ -1,4 +1,4 @@
- 👋 Hello!, I’m @meistercodes
+ 👋 Hello! there!, I’m @meistercodes
  
  Working down the path to becoming employable!
  
